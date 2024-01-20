@@ -1,0 +1,2 @@
+The wolf, also known as the gray wolf or grey wolf, is a large canine native to Eurasia and North America. More than thirty subspecies of Canis lupus have been recognized, including the dog and dingo, though gray wolves, as popularly understood, only comprise naturally-occurring wild subspecies.
+![wolf](https://images.unsplash.com/photo-1588167056547-c183313da47c?q=80&w=1000&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8Mnx8d29sZnN8ZW58MHx8MHx8fDA%3D)
